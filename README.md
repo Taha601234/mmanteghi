@@ -1,1 +1,1 @@
-azmadarmanteggi
+azmadarmanteghi
